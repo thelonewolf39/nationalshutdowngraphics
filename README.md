@@ -7,7 +7,8 @@ The entire country is shocked and outraged at the brutal killings of Alex Pretti
 1. Put one of our pictures on your account or repo
 2. Don't code at all. No internet usage at all.
 3. No shopping
-4. No work/school  
+4. No work/school
+5. Use the included pfp as your pfp until the Shutdown has concluded and ICE is shut down
 With these, we can shutdown funding for ICE
 ## Embeds
 For Design one:  
