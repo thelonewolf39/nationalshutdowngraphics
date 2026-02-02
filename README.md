@@ -1,4 +1,6 @@
 [![Design one](https://raw.githubusercontent.com/thelonewolf39/nationalshutdowngraphics/refs/heads/main/design_1.jpg)](nationalshutdown.org)
+> [!CAUTION]
+> (just using caution so it'll turn red) On January 30th, we made history. However, this hasn't stopped. Ohio residents that are Haitian are expected to be hunted down by ICE. Please, let's stop this now. Donate.
 # National Shutdown
 The people of the Twin Cities have shown the way for the whole country – to stop ICE’s reign of terror, we need to SHUT IT DOWN. On Friday, January 30, join a nationwide day of no school, no work and no shopping. 
 
